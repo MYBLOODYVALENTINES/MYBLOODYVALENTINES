@@ -14,7 +14,7 @@
 <h6 align="left"> I can take certain remarks seriously. Respectful, light hearted humor is always welcome.
 <h5 align="left"> I am usually expressive and energetic. I may even assign nicknames for others mid conversation..
 <h5 align="left"> Bonus. My lovelies oomfs ->> K,S,M,M,A
-<h5 align="left"> SOCIAL PREFERENCE
+<h5 align="left"> SOCIAL PREFERENCE:
 <h5 align="left"> I usually remain with my established group, though others are welcome to sit nearby or join in conversation.
 <h5 align="left"> Interaction is open, especially with those who share similar interests or individuals who prefer not to sit alone.
 <h3 align="center">  <img width="160" height="47" alt="image" src="https://github.com/user-attachments/assets/39309b76-0d2f-4da2-b18a-a846339f43c8" /> CURRNET HYPERFIXATIONS 
