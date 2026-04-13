@@ -19,7 +19,7 @@
 <h5 align="left"> Interaction is open, especially with those who share similar interests or individuals who prefer not to sit alone.
 <h3 align="center">  <img width="160" height="47" alt="image" src="https://github.com/user-attachments/assets/39309b76-0d2f-4da2-b18a-a846339f43c8" /> CURRNET HYPERFIXATIONS 
 <h6 align="center"> >> Please refrain from making disrespectful or offensive jokes regarding.. my pony/character, Related charatcers, The games themslves << </h5>
-<h5> !! Comf. Characters !! >> Harry(MBV),Player (PPT),  Crowe (TKATB),Wesker (RE),Deadpool,Horangi (COD),Honglu (LC),Itha / Jos / Frede (IDV),Elliot,Malleus, Jason Todd,Fool (Grace) </h5>
-<h5> !! Current Hyperfixations !! >> PPT • COD • RE  • DC/MR • Slashers Movies </h5>
+<h5> !! Comf. Characters !! >> Harry(MBV),Player (PPT),  Crowe (TKATB),Wesker (RE),Deadpool,Horangi (COD),Honglu (LC),Itha / Jos / Frede (IDV),Elliot,Malleus, Jason Todd,Fool (Grace),Wemmbu,Eggchan </h5>
+<h5> !! Current Hyperfixations !! >> PPT • COD • RE  • DC/MR • Slashers Movies • Minecraft </h5>
 <h5 align="center"> <img width="800 " height="440" alt="image" align="center" src="https://github.com/user-attachments/assets/58f13e40-234e-4bba-8e33-128a2f4484d1" align="center" />
 
