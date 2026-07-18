@@ -4,7 +4,6 @@
   <img width="500" height="400" alt="image" align="right" src="https://github.com/Silis-DoNotCover/image-maxxing/blob/c041beff0ee783bff364039561e1ba97f9a92051/MYBLOODYVALENTINES%20(7).png" />
 <h3 align="center"> <img width="164" height="60" alt="image" src="https://github.com/Silis-DoNotCover/image-maxxing/blob/c041beff0ee783bff364039561e1ba97f9a92051/MYBLOODYVALENTINES%20(1).png" /> DNI </h3>
 <h5 align="left"> > Basic DNI</h5>
-<h5 align="left"> >> Such as 'T.R.A.S.H' (transphobic, racist, ableist, sexist & homophobic)
 <h5 align="left"> > People who have blocked me, 
 <h5 align="left"> >>or people who I have unresolved conflicts with should refrain from interaction.</h5>
   <img width="400" height="550" align="right" alt="Alias ‘delivery’ (2)" src="https://github.com/Silis-DoNotCover/image-maxxing/blob/c041beff0ee783bff364039561e1ba97f9a92051/MYBLOODYVALENTINES%20(3).png" />
