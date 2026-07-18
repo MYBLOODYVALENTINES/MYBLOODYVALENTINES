@@ -14,7 +14,7 @@
 <h5 align="left"> I am usually expressive and energetic. I may even assign nicknames for others mid conversation..
 <h5 align="left"> Bonus. My lovelies oomfs ->> K,S,M,M,A
 <h5 align="left"> SOCIAL PREFERENCE:
-<h5 align="left"> I usually remain with my established group, though others are welcome to sit nearby or join in conversation.
+<h5 align="left"> I usually remain with my established group, though others are welcome to sit nearby or join in conversation.(please do ask or tell)
 <h5 align="left"> Interaction is open, especially with those who share similar interests or individuals who prefer not to sit alone.
 <h5 align="left"> if u do like int plz talk inztead of sitting next to me without talking 
 <h3 align="center">  <img width="160" height="47" alt="image" src="https://github.com/Silis-DoNotCover/image-maxxing/blob/c041beff0ee783bff364039561e1ba97f9a92051/MYBLOODYVALENTINES%20(4).png" /> CURRNET HYPERFIXATIONS 
