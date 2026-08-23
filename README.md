@@ -17,7 +17,7 @@
 <h5 align="left"> SOCIAL PREFERENCE:
 <h5 align="left"> I usually remain with my established group, though others are welcome to sit nearby or join in conversation.(please do ask or tell)
 <h5 align="left"> Interaction is open, especially with those who share similar interests or individuals who prefer not to sit alone.
-<h5 align="left"> if u do like int plz talk something inztead of coming n sitting next to me without talking 
+<h5 align="left"> if u do like int/c+h plz tell me inztead of coming n sitting next to me without tellin(i obviouzly wouldnt mind but prefer bein told!:D)
 <h3 align="center">  <img width="160" height="47" alt="image" src="https://github.com/Silis-DoNotCover/image-maxxing/blob/c041beff0ee783bff364039561e1ba97f9a92051/MYBLOODYVALENTINES%20(4).png" /> CURRNET HYPERFIXATIONS 
 <h6 align="center"> >> Please refrain from making disrespectful or offensive jokes regarding.. my pony/character, Related charatcers, The games themslves << </h5>
 <h5> !! Comf. Characters !! >> Harry(MBV),Player (PPT),  Crowe (TKATB),Wesker (RE),Deadpool,Horangi (COD),Honglu (LC),Itha / Jos / Frede (IDV),Elliot,Malleus, Jason Todd,Fool (Grace),Wemmbu,Eggchan,Ghostface,Ferryman/Gabriel(UK), </h5>
